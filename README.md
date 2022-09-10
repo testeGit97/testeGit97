@@ -33,3 +33,6 @@ Moro na cidade de Londrina, Paraná
 
 - Email: gustavogpaneghini@hotmail.com
 - Whatsapp: (43) 9 9687-7964
+
+
+Read Me teste apenas para aprendizado!
