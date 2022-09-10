@@ -31,6 +31,5 @@ Moro na cidade de Londrina, Paraná
 
 ## Contatos:
 
-- Instagram: @gpaneghini
 - Email: gustavogpaneghini@hotmail.com
 - Whatsapp: (43) 9 9687-7964
